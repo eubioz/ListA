@@ -2,12 +2,12 @@
 
 https://www.eubioz.com/
 
-https://www.eurobioz.com/
+https://www.eubioz.net/
 
 3 Emails:
 
 info@eubioz.com
 
-info@eurobioz.com
+info@eubioz.net
 
 eubioz@proton.me
